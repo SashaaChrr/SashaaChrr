@@ -1,0 +1,13 @@
+- 👋 Hi, I’m @SashaaChrr
+- 👀 I’m interested in drawing, rizz ppl /jokes, making friends, music
+- 🌱 I’m currently learning how to be sima and rizz
+- 💞️ I’m looking to collaborate on idk
+- 📫 How to reach me , marry me /j lets be prend
+- 😄 Pronouns: he / she / any / hedgie
+- ⚡ Fun fact: Who need 2 know? no one 🤑
+- 👥 Fandoms : STH, DB, MHA, FNF, FNAF, CRK, SPY X FAMILY, DEMON SLAYER
+- ❓ I am AMBIVERT💥
+- 💪supportive and love protecting, comforting my prends
+- 👨‍❤️‍💋‍👨 loves making friends w/ any1 ! (the emoji is a joke🤑)
+- 🎮 Games? i play roblox, horror games, PT (pony town), and all any games is horror or funz
+- 💝 love? no, im aroace/aromatic, no crush
