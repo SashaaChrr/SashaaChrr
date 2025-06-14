@@ -75,6 +75,8 @@ Please **DO NOT** make me feel uncomfortable or making my trauma go worser.
 USUALLY SEMI-AFK / OFFTAB!!! SO FEEL FREE TO C+H W/CUZ WHY NOT!!!
 —if I didn't response or late resp to your chat, that's mean I'm AFK / SEMI-AFK / OFFTAB / MUTED / UNCOMFORTABLE!! <3
 
+I get very(or a bit) clingy especially when I'm uncomfortable, sad or upset!
+
 USUALLY COS AS STH SKINS!!!
 
 —————✦—————
@@ -95,3 +97,4 @@ AHAJA I usually w/ my friends or alone so if you want to C+H ask me or my friend
 ✧･ﾟ
 
 Hey. huehuehue. Im not really good at eng </3 and why are you still here🤔
+TYSM TYSM FOR READING THIS AND UNDERSTAND GNG ❗❗❗
