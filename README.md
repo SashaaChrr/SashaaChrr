@@ -22,6 +22,7 @@ Hiiiee! Im Sasha — Also you can call me ANY NICKNAMES you want. But **DO NOT**
 —————✦—————
 **DO NOT** ask a personal question like my age for ppl who I just met!! (UNLESS CLOSE FRIEND)
 Don't you messing w/ my friends or make them upsets vro, I bite.
+
 ╰┈➤ I don't bite you if want to C+H or int w/ me! Unless if I'm uncomfy or upsets. but still can C+H w/ me for comfort me!
 
 I bite if you make my friends uncomfortable or upsets. But UH I don't bite when I was the one you messing w/ cuz usually I stay silent and usually confused. But SOMETIMES I get uncomfortable.
@@ -112,4 +113,5 @@ AHAJA I usually w/ my friends or alone so if you want to C+H ask me or my friend
 ✧･ﾟ
 
 Hey. huehuehue. Im not really good at eng </3 and why are you still here🤔
+
 TYSM TYSM FOR READING THIS AND UNDERSTAND GNG ❗❗❗
