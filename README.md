@@ -16,6 +16,7 @@ Hiiiee! Im Sasha — Also you can call me ANY NICKNAMES you want. But **DO NOT**
 
 
 𝐍𝐨𝐰 𝐥𝐨𝐚𝐝𝐢𝐧𝐠. . .
+
 ▒▒▒▒▒▒▒▒▒▒ 100%
 
 —————✦—————
@@ -32,6 +33,8 @@ Please **DO NOT** make me feel uncomfortable or making my trauma go worser.
 
 ❗❗❗
 DO NOT....
+
+
 🚫DNI PT user " -shadow- " (The one skin i gifted to) , Shadria, Sonails, and all disgusting ahh ships, ppl makes me uncomfortable, 🔞, copycat !!! 
 
 —————✦—————
