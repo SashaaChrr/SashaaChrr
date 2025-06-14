@@ -3,6 +3,7 @@
 —————✦—————
 
 Hiiiee! Im Sasha — Also you can call me ANY NICKNAMES you want. But **DO NOT** call me "babe, baby, honey" or anything like that which made me feel uncomfortable unless if you mean it as a joke!
+
 ┊　         　┊　         　┊　         　┊
 
 ┊　     　    ┊　         　┊　             ✧･ﾟ
@@ -41,6 +42,7 @@ DO NOT....
 
 🚫DNC/K (COVER/KISS) UNLESS FRIENDS OR UNLESS W/PPL I COMFORTABLE WITH!!! (when im uncomfortable only :) )
 
+
 ┊　         　┊　         　┊　         　┊
 
 ┊　     　    ┊　         　┊　             ✧･ﾟ
@@ -51,9 +53,13 @@ DO NOT....
 
 ✧･ﾟ
 |
-✦ ⊹ . AH, also, please ask my friends permission first before C+H w/ us/them because some of my friends didn't like to C+H w/anyone they don't know especially ppl w/ new looking skins. But some of my friends didn't mind if you want to C+H w/ them!! They don't trust ppl w/ new looking skins except our friends w/ new looking skins! Some of us had trust issues after some of incident we've been through!
+
+
+✦ ⊹ .AH, also, please ask my friends permission first before C+H w/ us/them because some of my friends didn't like to C+H w/anyone they don't know especially ppl w/ new looking skins. But some of my friends didn't mind if you want to C+H w/ them!! They don't trust ppl w/ new looking skins except our friends w/ new looking skins! Some of us had trust issues after some of incident we've been through!
 
 ────────── ·﻿ ﻿ ﻿· ﻿ ·﻿ ﻿ ﻿· ﻿✦                
+
+
 ┆┆⋆                    ⋆
 
 ┆┆
@@ -90,6 +96,8 @@ Also . . . Please int / w2i / C+H with w2i or int before send me a friend reques
 —————✦—————
 
 AHAJA I usually w/ my friends or alone so if you want to C+H ask me or my friends first before C+H. I don't mind but my friends did mind (some of them only and some other didn't mind) !!! BUT if I'm alone, well. . FEEL FREE TO C+H W ME!!
+
+
 ┊　         　┊　         　┊　         　┊
 
 ┊　     　    ┊　         　┊　             ✧･ﾟ
