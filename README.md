@@ -30,11 +30,9 @@ Ah, Yes I forgot something. Yes, me and some of my friends bite IF you make us u
 Please **DO NOT** make me feel uncomfortable or making my trauma go worser.
 
 ❗❗❗
-
-🚫DNI :— PT user " -shadow- " (The one skin i gifted to) , Shadria, Sonails, and all disgusting ahh ships, ppl makes me uncomfortable, 🔞, copycat !!! 
-—————✦—————
+DO NOT....
+🚫DNI PT user " -shadow- " (The one skin i gifted to) , Shadria, Sonails, and all disgusting ahh ships, ppl makes me uncomfortable, 🔞, copycat !!! 
 🚫DNC(COPY) UNLESS YOU HAD MY PERMISSION, FRIENDS OR INSPO!!!
-—————✦—————
 🚫DNC/K (COVER/KISS) UNLESS FRIENDS!!!
 
 ┊　         　┊　         　┊　         　┊
