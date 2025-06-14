@@ -50,7 +50,7 @@ DO NOT....
 
 🚫DNC/K (COVER/KISS) UNLESS FRIENDS OR UNLESS W/PPL I COMFORTABLE WITH!!! (when im uncomfortable only :) )
 
-**MOSTLY** DNI PT username -shadow- and Cosmy !!! (These 2 cause lot of argument w/ my friends, bothering traumatizing US (Us - Me, Hayli/⭐cats⭐, Casper/Nox/Atlas, Cybrgurlz, Songit, Strawberryfurb!:/ )
+**MOSTLY** DNI PT username -shadow- and Cosmy !!! (These 2 cause lot of argument w/ my friends, bothering and traumatizing US (Us - Me, Hayli/⭐cats⭐, Casper/Nox/Atlas, Cybrgurlz, Songit, Strawberryfurb!:/ )
 
 
 
