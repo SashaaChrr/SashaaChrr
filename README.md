@@ -40,7 +40,7 @@ Please **DO NOT** make me feel uncomfortable or making my trauma go worser.
 DO NOT....
 
 
-🚫DNI PT user " -shadow- " (The one skin i gifted to) , Shadria, Sonails, and all disgusting ahh ships, ppl makes me uncomfortable, 🔞, copycat !!! 
+🚫DNI Shadria, Sonails, and all disgusting ahh ships like adult x child, ppl makes me uncomfortable, sexualizing, 🔞, copycat, toxic ppl !!! 
 
 —————✦—————
 
@@ -49,6 +49,10 @@ DO NOT....
 —————✦—————
 
 🚫DNC/K (COVER/KISS) UNLESS FRIENDS OR UNLESS W/PPL I COMFORTABLE WITH!!! (when im uncomfortable only :) )
+
+**MOSTLY** DNI PT username -shadow- and Cosmy !!! (These 2 cause lot of argument w/ my friends, bothering traumatizing US (Us - Me, Hayli/⭐cats⭐, Casper/Nox/Atlas, Cybrgurlz, Songit, Strawberryfurb!:/ )
+
+
 
 
 ┊　         　┊　         　┊　         　┊
