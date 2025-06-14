@@ -27,7 +27,7 @@ Don't you messing w/ my friends or make them upsets vro, I bite.
 
 I bite if you make my friends uncomfortable or upsets. But UH I don't bite when I was the one you messing w/ cuz usually I stay silent and usually confused. But SOMETIMES I get uncomfortable.
 
-- - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - -
+—    —    —    —    —    —    —    —    —    —    —    —    —    —    —    —   ⊹ ✦
 
 Ah, Yes I forgot something. Yes, me and some of my friends bite IF you make us uncomfortable or messing w/ us.
 Please **DO NOT** make me feel uncomfortable or making my trauma go worser.
