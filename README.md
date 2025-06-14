@@ -17,12 +17,8 @@ Hiiiee! Im Sasha — Also you can call me ANY NICKNAMES you want. But **DO NOT**
 𝐍𝐨𝐰 𝐥𝐨𝐚𝐝𝐢𝐧𝐠. . .
 ▒▒▒▒▒▒▒▒▒▒ 100%
 
-|
-|
-|
-|
-
-—————✦————— **DO NOT** ask a personal question like my age for ppl who I just met!! (UNLESS CLOSE FRIEND)
+—————✦—————
+**DO NOT** ask a personal question like my age for ppl who I just met!! (UNLESS CLOSE FRIEND)
 Don't you messing w/ my friends or make them upsets vro, I bite.
 ╰┈➤ I don't bite you if want to C+H or int w/ me! Unless if I'm uncomfy or upsets. but still can C+H w/ me for comfort me!
 
@@ -35,7 +31,7 @@ Please **DO NOT** make me feel uncomfortable or making my trauma go worser.
 
 ❗❗❗
 
-🚫DNI :— PT user " -shadow- " (The one skin i gifted to) , Shadria, Sonails, and all disgusting ahh ships, ppl makes me uncomfortable, 🔞, copycat !!!
+🚫DNI :— PT user " -shadow- " (The one skin i gifted to) , Shadria, Sonails, and all disgusting ahh ships, ppl makes me uncomfortable, 🔞, copycat !!! 
 —————✦—————
 🚫DNC(COPY) UNLESS YOU HAD MY PERMISSION, FRIENDS OR INSPO!!!
 —————✦—————
