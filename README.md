@@ -110,7 +110,9 @@ Also . . . Please int / w2i / C+H with w2i or int before send me a friend reques
 AHAJA I usually w/ my friends or alone so if you want to C+H ask me or my friends first before C+H. I don't mind but my friends did mind (some of them only and some other didn't mind) !!! BUT if I'm alone, well. . FEEL FREE TO C+H W ME!!
 
 
-┊　         　┊　         　┊　         　┊
+Js wanna to let ya know, I kinda had amnesia/forget things easily. I forgot some of my friends i had friends so sometimes i will unfriend them if i don't remember them or know them. So if you remember me but notice i unfriended ya, quickly tell me and try to make me remember back! But if I still don't remember, it's alright, I will send ua a friend request even and we still can be friends. <3
+
+┊　         　┊　         　┊
 
 ┊　     　    ┊　         　┊　             ✧･ﾟ
 
@@ -119,6 +121,8 @@ AHAJA I usually w/ my friends or alone so if you want to C+H ask me or my friend
 ┊　             ✧･ﾟ
 
 ✧･ﾟ
+
+💝 Sometimes will comfort ppl/strangers whenever i saw them sad/upset and become friends.
 
 Hey. huehuehue. Im not really good at eng </3 and why are you still here🤔
 
