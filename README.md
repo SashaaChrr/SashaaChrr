@@ -153,3 +153,6 @@ When I "DNIUCF", my friends I consider as close friends that can int is:
 Hey. huehuehue. Im not really good at eng </3 and why are you still here🤔
 
 TYSM TYSM FOR READING THIS AND UNDERSTAND GNG ❗❗❗
+
+
+—— WANT TO KNOW MORE ABOUT ME OR MY FRIENDS? WHISPER/W2I WITH ME ON PT TO KNOW MORE OR ASK!!! (**DO NOT ASK PERSONAL QUESTION LIKE WHERE I LIVE**)
