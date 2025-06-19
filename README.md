@@ -1,6 +1,6 @@
-⋘ 𝑙𝑜𝑎𝑑𝑖𝑛𝑔 𝑑𝑎𝑡𝑎... ⋙ . . . (Edited) !!
+                      ⋘ 𝑙𝑜𝑎𝑑𝑖𝑛𝑔 𝑑𝑎𝑡𝑎... ⋙ . . . (Edited) !!
 
-—————✦—————
+                                 —————✦—————
 
 Hiiiee! Im Sasha — Also you can call me ANY NICKNAMES you want. But **DO NOT** call me "babe, baby, honey" or anything like that which made me feel uncomfortable unless if you mean it as a joke!
 
@@ -16,9 +16,10 @@ Hiiiee! Im Sasha — Also you can call me ANY NICKNAMES you want. But **DO NOT**
 
 
 
-𝐍𝐨𝐰 𝐥𝐨𝐚𝐝𝐢𝐧𝐠. . .
 
-▒▒▒▒▒▒▒▒▒▒ 100%
+                                𝐍𝐨𝐰 𝐥𝐨𝐚𝐝𝐢𝐧𝐠. . .
+
+                               ▒▒▒▒▒▒▒▒▒▒ 100%
 
 
 
@@ -42,11 +43,11 @@ DO NOT....
 
 🚫DNI Shadria, Sonails, and all disgusting ahh ships like adult x child, ppl makes me uncomfortable, sexualizing, 🔞, copycat, toxic ppl !!! 
 
-—————✦—————
+                                —————✦—————
 
 🚫DNC(COPY) UNLESS YOU HAD MY PERMISSION, FRIENDS OR INSPO!!!
 
-—————✦—————
+                                —————✦—————
 
 🚫DNC/K (COVER/KISS) UNLESS FRIENDS OR UNLESS W/PPL I COMFORTABLE WITH!!! (when im uncomfortable only :) )
 
@@ -69,7 +70,7 @@ DO NOT....
 
 ✦ ⊹ .AH, also, please ask my friends permission first before C+H w/ us/them because some of my friends didn't like to C+H w/anyone they don't know especially ppl w/ new looking skins. But some of my friends didn't mind if you want to C+H w/ them!! They don't trust ppl w/ new looking skins except our friends w/ new looking skins! Some of us had trust issues after some of incident we've been through!
 
-────────── ·﻿ ﻿ ﻿· ﻿ ·﻿ ﻿ ﻿· ﻿✦                
+                         ────────── ·﻿ ﻿ ﻿· ﻿ ·﻿ ﻿ ﻿· ﻿✦                
 
 
 
@@ -88,6 +89,8 @@ Things I hate:
 -Copying / Took too much inspo.
 
 -Send me a friend request for no reason, never meet or never int. (but its alr i guess, i usually just accept anyone friend request)
+
+-Hide or Block me FOR NO REASON. (PLS TELL THE REASON BEFORE HIDING ME OR BLOCKING ME.)
 
 
 
@@ -119,16 +122,21 @@ USUALLY SEMI-AFK / OFFTAB!!! SO FEEL FREE TO C+H W/CUZ WHY NOT!!!
 
 I get very(or a bit) clingy especially when I'm uncomfortable, sad or upset!
 
-USUALLY COS AS STH SKINS!!!
+I sometimes feel kinda shy or scared to int w/ ppl idk or ppl w good skins and shading than mine. Unless you would like to int w/ me first to talk to me :) (FEEL FREE 2 INT)
 
-—————✦—————
+                                 —————✦—————
+
+USUALLY COS AS STH SKINS!!! (usually Sonic)
+
+                                 —————✦—————
 
 Also . . . Please int / w2i / C+H with w2i or int before send me a friend request, and **NOT** to send me a friend request w/out int / w2i. I don't even know who you are if you didn't int / w2i with me.
 
-—————✦—————
+                                 —————✦—————
 
 AHAJA I usually w/ my friends or alone so if you want to C+H ask me or my friends first before C+H. I don't mind but my friends did mind (some of them only and some other didn't mind) !!! BUT if I'm alone, well. . FEEL FREE TO C+H W ME!!
 
+                                 —————✦—————
 
 Js wanna to let ya know, I kinda had amnesia/forget things easily. I forgot some of my friends i had friends so sometimes i will unfriend them if i don't remember them or know them. So if you remember me but notice i unfriended ya, quickly tell me and try to make me remember back! But if I still don't remember, it's alright, I will send you a friend request even and we still can be friends. <3
 
@@ -144,15 +152,20 @@ Js wanna to let ya know, I kinda had amnesia/forget things easily. I forgot some
 
 💝 Sometimes will comfort ppl/strangers whenever i saw them sad/upset and become friends.
 
-—————✦—————
+                                —————✦—————
 
 When I "DNIUCF", my friends I consider as close friends that can int is:
 
 -Alicia, Hayli/⭐cats⭐, Casper/Atlas/N0Xx, Cybergurlz, Lia Julien, Strawberryferb, Alan, Tristan, Songit, Izumi, Suki, Hiro, Ev/MOM, Miz/Mizuki, Sowie.
 
+and when I DNI. Means do not interact but C+H are allowed :D
+
+                                —————✦—————
+
 Hey. huehuehue. Im not really good at eng </3 and why are you still here🤔
 
 TYSM TYSM FOR READING THIS AND UNDERSTAND GNG ❗❗❗
 
+                                 ——— 🐾 ———
 
-—— WANT TO KNOW MORE ABOUT ME OR MY FRIENDS? WHISPER/W2I WITH ME ON PT TO KNOW MORE OR ASK!!! (**DO NOT ASK PERSONAL QUESTION LIKE WHERE I LIVE**)
+—— WANT TO KNOW MORE ABOUT ME OR MY FRIENDS? WHISPER/W2I WITH ME ON PT TO KNOW MORE OR ASK!!! (**DO NOT ASK PERSONAL QUESTION LIKE WHERE I LIVE OR PERSONAL QUESTION BOUT MY FRIENDS**)
