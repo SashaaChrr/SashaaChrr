@@ -40,7 +40,7 @@ Please **DO NOT** make me feel uncomfortable or making my trauma go worser.
 DO NOT....
 
 
-🚫DNI Shadria, Sonails, and all disgusting ahh ships like adult x child, ppl makes me uncomfortable, sexualizing, 🔞, copycat, toxic ppl !!! 
+🚫DNI Shadria, Sonails, and all disgusting ahh ships like adult x child, ppl makes me uncomfortable, sexualizing, 🔞, copycat, toxic ppl and phedophile !!! 
                              —————✦—————
 
 🚫DNC(COPY) UNLESS YOU HAD MY PERMISSION, FRIENDS OR INSPO!!!
@@ -49,7 +49,7 @@ DO NOT....
                                 
 🚫DNC/K (COVER/KISS) UNLESS FRIENDS OR UNLESS W/PPL I COMFORTABLE WITH!!! (when im uncomfortable only :) )
 
-**MOSTLY** DNI PT username -shadow- and Cosmy !!! (These 2 cause lot of argument w/ my friends, bothering and traumatizing US (Us - Me, Hayli/⭐cats⭐, Casper/Nox/Atlas, Cybrgurlz, Songit, Strawberryferb!:/ )
+**MOSTLY** DNI PT username -shadow- and Cosmy !!! (These 2 cause lot of argument w/ my friends, bothering and traumatizing me and my friends!!)
 
 
 
@@ -152,11 +152,7 @@ Js wanna to let ya know, I kinda had amnesia/forget things easily. I forgot some
 
                      —————✦—————
 
-When I "DNIUCF", my friends I consider as close friends that can int is:
-
--Alicia, Hayli/⭐cats⭐, Casper/Atlas/N0Xx, Cybergurlz, Lia Julien, Strawberryferb, Alan, Tristan, Songit, Izumi, Suki, Hiro, Ev/MOM, Miz/Mizuki, Sowie.
-
-and when I DNI. Means do not interact but C+H are allowed :D
+when I DNI. Means do not interact but C+H are allowed :D
 
 My mbti: ENFP
 
