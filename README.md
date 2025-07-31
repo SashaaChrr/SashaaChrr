@@ -40,11 +40,11 @@ Please **DO NOT** make me feel uncomfortable or making my trauma go worser.
 DO NOT....
 
 
-🚫DNI Shadria, Sonails, and all disgusting ahh ships like adult x child, ppl makes me uncomfortable, sexualizing, 🔞, copycat, toxic ppl and phedophile !!! 
+🚫DNI Shadria, Sonails, and all disgusting ahh ships like adult x child (pedo), ppl makes me uncomfortable, sexualizing, 🔞, copycat, toxic ppl and phedophile !!! 
                              —————✦—————
 
-🚫DNC(COPY) UNLESS YOU HAD MY PERMISSION, FRIENDS OR INSPO!!!
-
+🚫DNC(COPY) OR TOOK INSPO UNLESS YOU HAD MY PERMISSION
+ 
                              —————✦—————
                                 
 🚫DNC/K (COVER/KISS) UNLESS FRIENDS OR UNLESS W/PPL I COMFORTABLE WITH!!! (when im uncomfortable only :) )
@@ -118,7 +118,6 @@ Things I hate:
 USUALLY SEMI-AFK / OFFTAB!!! SO FEEL FREE TO C+H W/CUZ WHY NOT!!!
 —if I didn't response or late resp to your chat, that's mean I'm AFK / SEMI-AFK / OFFTAB / MUTED / UNCOMFORTABLE!! <3
 
-I get very(or a bit) clingy especially when I'm uncomfortable, sad or upset!
 
 I sometimes feel kinda shy or scared to int w/ ppl idk or ppl w good skins and shading than mine. Unless you would like to int w/ me first to talk to me :) (FEEL FREE 2 INT)
   
@@ -154,7 +153,7 @@ Js wanna to let ya know, I kinda had amnesia/forget things easily. I forgot some
 
 when I DNI. Means do not interact but C+H are allowed :D
 
-My mbti: ENFP
+My mbti: ESFP
 
                      —————✦—————
 
