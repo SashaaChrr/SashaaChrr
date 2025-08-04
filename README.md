@@ -6,11 +6,6 @@ Hiiieee! WELCOME, WELCOME !! Im Sasha — Also you can call me ANY NICKNAMES you
 
 
 
-![cdafad45242dd326d73607b907d643ac](https://github.com/user-attachments/assets/004c203d-9ba7-4c17-96df-0905bac25d78)
-
-
-
-
 
 ┊　         　┊　         　┊　         　┊
 
