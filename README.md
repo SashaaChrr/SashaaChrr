@@ -38,7 +38,11 @@ Don't you messing w/ my friends or make them upsets vro, I bite.
 
 I bite if you make my friends uncomfortable or upsets. But UH I don't bite when I was the one you messing w/ cuz usually I stay silent and usually confused. But SOMETIMES I get uncomfortable.
 
+
+
 —    —    —    —    —    —    —    —    —    —    —    —    —    —    —    —   ⊹ ✦
+
+
 
 Ah, Yes I forgot something. Yes, me and some of my friends bite IF you make us uncomfortable or messing w/ us.
 Please **DO NOT** make me feel uncomfortable or making my trauma go worser.
@@ -194,7 +198,7 @@ Js wanna to let ya know, I kinda had amnesia/forget things easily. I forgot some
 
 when I DNI. Means do not interact but C+H are allowed :D
 
-My mbti: ESFP
+My mbti: ESTP
 
                      —————✦—————
 
@@ -205,3 +209,4 @@ TYSM TYSM FOR READING THIS AND UNDERSTAND GNG ❗❗❗
                       ——— 🐾 ———
 
 GAHHH TYSM FOR UNDERSTANDING AND READING THIS!!! Feel free to send me a friend request after you read all of this only
+(My eng is lil bad so my grammar is not good👍💔)
