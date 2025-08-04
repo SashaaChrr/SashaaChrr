@@ -200,6 +200,8 @@ when I DNI. Means do not interact but C+H are allowed :D
 
 My mbti: ESTP
 
+Disc: bark4mekitten
+Rblx: SnicKeei
                      —————✦—————
 
 Hey. huehuehue. Im not really good at eng </3 and why are you still here🤔
