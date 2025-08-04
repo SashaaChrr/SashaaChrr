@@ -20,8 +20,8 @@ Hiiieee! WELCOME, WELCOME !! Im Sasha — Also you can call me ANY NICKNAMES you
 
 
 
-                    𝐍𝐨𝐰 𝐥𝐨𝐚𝐝𝐢𝐧𝐠. . 
-                   ▒▒▒▒▒▒▒▒▒▒ 100%
+                               𝐍𝐨𝐰 𝐥𝐨𝐚𝐝𝐢𝐧𝐠. . 
+                              ▒▒▒▒▒▒▒▒▒▒ 100%
 
 
 
