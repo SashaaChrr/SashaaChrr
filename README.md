@@ -2,7 +2,15 @@
 
                     —————✦—————
 
-Hiiiee! Im Sasha — Also you can call me ANY NICKNAMES you want. But **DO NOT** call me "babe, baby, honey" or anything like that which made me feel uncomfortable unless if you mean it as a joke!
+Hiiieee! WELCOME, WELCOME !! Im Sasha — Also you can call me ANY NICKNAMES you want.
+
+
+
+![cdafad45242dd326d73607b907d643ac](https://github.com/user-attachments/assets/004c203d-9ba7-4c17-96df-0905bac25d78)
+
+
+
+
 
 ┊　         　┊　         　┊　         　┊
 
@@ -23,7 +31,11 @@ Hiiiee! Im Sasha — Also you can call me ANY NICKNAMES you want. But **DO NOT**
 
 
 
-—————✦—————
+
+
+                               —————✦—————
+
+
 **DO NOT** ask a personal question like my age for ppl who I just met!! (UNLESS CLOSE FRIEND)
 Don't you messing w/ my friends or make them upsets vro, I bite.
 
@@ -41,6 +53,7 @@ DO NOT....
 
 
 🚫DNI Shadria, Sonails, and all disgusting ahh ships like adult x child (pedo), ppl makes me uncomfortable, sexualizing, 🔞, copycat, toxic ppl and phedophile !!! 
+
                              —————✦—————
 
 🚫DNC(COPY) OR TOOK INSPO UNLESS YOU HAD MY PERMISSION
@@ -56,11 +69,11 @@ DO NOT....
 
 ┊　         　┊　         　┊　         　┊
 
-┊　     　    ┊　         　┊　             ✧･ﾟ
+┊　     　    ┊　         　┊　            ✧･ﾟ
 
 ┊　         　┊　      　   ✧･ﾟ
 
-┊　             ✧･ﾟ
+┊　           ✧･ﾟ
 
 ✧･ﾟ
 
@@ -69,6 +82,19 @@ DO NOT....
 ✦ ⊹ .AH, also, please ask my friends permission first before C+H w/ us/them because some of my friends didn't like to C+H w/anyone they don't know especially ppl w/ new looking skins. But some of my friends didn't mind if you want to C+H w/ them!! They don't trust ppl w/ new looking skins except our friends w/ new looking skins! Some of us had trust issues after some of incident we've been through!
 
      ────────── ·﻿ ﻿ ﻿· ﻿ ·﻿ ﻿ ﻿· ﻿✦                
+
+
+* .  °
+
+
+How I chatting w ppl/friends:
+
+Well, I mostly iwc with ppl/friends had anxiety attack or not rlly socialize, sad and don't like jokes and get uncomfortable easily. But when w ppl like to jokes or trolling around, hell yeah, i get to same energy as them. I have different way to int w every ppl but i might be awakward sometimes especially w new ppl i js met. Also if im making you uncomfortable with my jokes or anything like that, pleade tell me.
+
+
+
+~    ` . ° *
+
 
 
 
@@ -89,6 +115,8 @@ Things I hate:
 -Send me a friend request for no reason, never meet or never int. (but its alr i guess, i usually just accept anyone friend request)
 
 -Hide or Block me FOR NO REASON. (PLS TELL THE REASON BEFORE HIDING ME OR BLOCKING ME.)
+
+
 
 
 
@@ -115,21 +143,35 @@ Things I hate:
 ✧
 
 
-USUALLY SEMI-AFK / OFFTAB!!! SO FEEL FREE TO C+H W/CUZ WHY NOT!!!
+REMIND (ig?) : —
+-I usually get uncomfortable when ppl talk about 18+ thing, send 18+ arts to me, sexualing me / talk about my body or anything like that so iwc when you had to, i dont force ppl !!
+
+
+-USUALLY SEMI-AFK / OFFTAB!!! SO FEEL FREE TO C+H W/CUZ WHY NOT!!!
 —if I didn't response or late resp to your chat, that's mean I'm AFK / SEMI-AFK / OFFTAB / MUTED / UNCOMFORTABLE!! <3
+(I don't usually get uncomfortable so feel REALLY free to C+H)
 
 
-I sometimes feel kinda shy or scared to int w/ ppl idk or ppl w good skins and shading than mine. Unless you would like to int w/ me first to talk to me :) (FEEL FREE 2 INT)
+-I sometimes feel kinda shy or scared to int w/ ppl idk or ppl w good skins and shading than mine. Unless you would like to int w/ me first to talk to me :) (FEEL FREE 2 INT)
   
-                    —————✦—————
+                                 —————✦—————
 
 USUALLY COS AS STH SKINS!!! (usually Sonic)
 
-                        —————✦—————
+
+
+
+![ee37a1954b86e30fb5b5859347c36539](https://github.com/user-attachments/assets/03879896-053c-4745-9ee3-51b4fbfad8b4)
+
+
+
+
+ My baby❗❗
+                                 —————✦—————
 
 Also . . . Please int / w2i / C+H with w2i or int before send me a friend request, and **NOT** to send me a friend request w/out int / w2i. I don't even know who you are if you didn't int / w2i with me.
 
-                            —————✦—————
+                                 —————✦—————
 
 AHAJA I usually w/ my friends or alone so if you want to C+H ask me or my friends first before C+H. I don't mind but my friends did mind (some of them only and some other didn't mind) !!! BUT if I'm alone, well. . FEEL FREE TO C+H W ME!!
 
@@ -143,9 +185,13 @@ Js wanna to let ya know, I kinda had amnesia/forget things easily. I forgot some
 
 ┊　         　┊　      　   ✧･ﾟ
 
-┊　             ✧･ﾟ
+┊　           ✧･ﾟ
 
 ✧･ﾟ
+
+
+
+
 
 💝 Sometimes will comfort ppl/strangers whenever i saw them sad/upset and become friends.
 
